@@ -10,7 +10,7 @@ Customer service is a top priority at 30jili, with a dedicated support team avai
 This commitment to excellent service ensures that players can enjoy their gaming experience without interruption, knowing that help is always just a click away.
 Overall, 30jili combines outstanding customer service, intuitive design, and diverse gameplay to create a top-tier gaming platform.
 
-[url]30jili.vip[/url]
+[url][30jili.vip](https://30jili.vip)[/url]
 
 
 
